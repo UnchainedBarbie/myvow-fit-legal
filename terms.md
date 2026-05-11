@@ -99,7 +99,7 @@ We may update these Terms from time to time. Material changes will be communicat
 
 ## 16. Contact
 
-For questions about these Terms, contact us at:
+For questions about these Terms, contact us at: support@myvowfit.com
 
 MyVow, Inc.
 4844 S Pagosa Way
