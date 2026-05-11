@@ -78,7 +78,7 @@ We may update this Privacy Policy from time to time. Material changes will be co
 
 ## 9. Contact
 
-For questions about this Privacy Policy or our data practices, contact us at:
+For questions about this Privacy Policy or our data practices, contact us at: support@myvowfit.com
 
 MyVow, Inc.
 4844 S Pagosa Way
